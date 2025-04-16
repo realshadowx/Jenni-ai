@@ -6,6 +6,32 @@ Whether you're a student, blogger, researcher, or content creator, Jenni AI make
 
 With the latest [Jenni AI promo code](https://jenni.ai/?via=salman-amir), you can save big on your subscription and start writing better for less.
 
+[![jenni ai promo code](https://github.com/user-attachments/assets/6cd25722-0420-407d-8063-e73491ba1abc)](https://jenni.ai/?via=salman-amir)
+
+## 60% Off on All Jenni AI Plans
+
+Apply the coupon code JENNI60 at checkout to receive a 60% discount on any Jenni AI subscription plan. This offer is ideal for students, writers, and teams seeking advanced AI writing assistance.
+
+[![Discount button](https://github.com/user-attachments/assets/94c74ff6-5713-4039-ade1-c1ee7327c179)](https://jenni.ai/?via=salman-amir)
+
+## Jenni AI 30% Student Discount
+
+Students can enjoy a 30% discount on monthly or annual plans by verifying their status through Student Beans. This exclusive offer supports academic writing needs.
+
+[![Discount button](https://github.com/user-attachments/assets/94c74ff6-5713-4039-ade1-c1ee7327c179)](https://jenni.ai/?via=salman-amir)
+
+## 20% Off with Code 'WT10'
+
+Use the promo code WT10 to get a 20% discount on your Jenni AI subscription. This code is popular among users and has been reported to work effectively.
+
+[![Discount button](https://github.com/user-attachments/assets/94c74ff6-5713-4039-ade1-c1ee7327c179)](https://jenni.ai/?via=salman-amir)
+
+## Free Plan Available
+
+Jenni AI offers a free plan that includes 200 AI-generated words per day, 10 PDF uploads, AI autocomplete, 10 AI chat messages, AI editing commands, and access to 1,700 citation styles. This plan is perfect for users who want to explore Jenni AI's capabilities before committing to a paid subscription.
+
+[![Discount button](https://github.com/user-attachments/assets/94c74ff6-5713-4039-ade1-c1ee7327c179)](https://jenni.ai/?via=salman-amir)
+
 ## Latest Jenni AI Discount Codes for April 2025
 
 Take advantage of these working Jenni AI coupon codes to cut costs and boost your writing workflow:
